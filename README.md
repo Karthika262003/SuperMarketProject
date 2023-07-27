@@ -1,0 +1,7 @@
+![Screenshot (177)](https://github.com/Karthika262003/SuperMarketProject/assets/139204283/3275f5bf-24f0-4bd8-946c-50353d7d54f2)
+![Screenshot (178)](https://github.com/Karthika262003/SuperMarketProject/assets/139204283/305bdce4-c55f-496c-b251-0f1bfc0853cb)
+![Screenshot (179)](https://github.com/Karthika262003/SuperMarketProject/assets/139204283/e9428b1b-3a7d-4aea-b5c3-6dd7d5346c41)
+![Screenshot (180)](https://github.com/Karthika262003/SuperMarketProject/assets/139204283/973d0234-01db-4748-bc84-4275005b2f84)
+![Screenshot (182)](https://github.com/Karthika262003/SuperMarketProject/assets/139204283/6ec2ba5f-2c04-4dca-84f2-b663050aca2b)
+![Screenshot (184)](https://github.com/Karthika262003/SuperMarketProject/assets/139204283/50f07271-b116-45d6-886c-3baa4d044689)
+![Screenshot (185)](https://github.com/Karthika262003/SuperMarketProject/assets/139204283/ff108a0a-6055-4056-886c-5654bc3fd2bb)
